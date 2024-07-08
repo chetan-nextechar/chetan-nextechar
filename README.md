@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Chetan
+- 👀 I’m interested in tech
+- 🌱 I’m currently learning. 
+- 💞️ I’m looking to collaborate.
+- 📫 Am on MS Teams in case tou want to reach me
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am a world known master chef...in my home.
